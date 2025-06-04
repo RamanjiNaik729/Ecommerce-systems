@@ -1,1 +1,0 @@
-# techm-ecommerce-assignment
